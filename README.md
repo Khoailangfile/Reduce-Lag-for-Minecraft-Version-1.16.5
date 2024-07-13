@@ -69,7 +69,7 @@ Có 2 File Alex.png Và Steve.png Lấy File Skin Của Bạn Đặt Tên 2 File
 Bước 5 Vào Minecraft 1.16.5 Nhấn Vào Cài Đặt
 
 Video Hướng Dẫn Cách Cho File Skin Vào Pojavlauncher
-Link:https://drive.google.com/file/d/1krBax-LZv7ZQ17BJ_xSUd0zYVRXCwk_8/view?usp=drivesdk
+Link:https://bit.ly/4bBxGfe
 
 Cám Ơn Các Bạn Đã Tải Xuống Và Đọc Hết Cái Này Cám Ơn Các Bạn Đã Xem Video Của Mình
 
