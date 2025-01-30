@@ -68,9 +68,6 @@ Có 2 File Alex.png Và Steve.png Lấy File Skin Của Bạn Đặt Tên 2 File
 
 Bước 5 Vào Minecraft 1.16.5 Nhấn Vào Cài Đặt
 
-Video Hướng Dẫn Cách Cho File Skin Vào Pojavlauncher
-Link:https://bit.ly/4bBxGfe
-
 Cám Ơn Các Bạn Đã Tải Xuống Và Đọc Hết Cái Này Cám Ơn Các Bạn Đã Xem Video Của Mình
 
 Những Link Của Mình
@@ -83,11 +80,11 @@ NoCopyrightSounds (NCS) 
 
 APK Hoàng Quỳnh VN (Khoai Lang)
 Link Bio:https://solo.to/nguyenquynh2001
-Youtube:https://youtube.com/@apkhoangquynhvn7639?si=cJQ2-v3L2nIpVvIy
+Youtube:https://youtube.com/@apkhoangquynhvn7639
 
 NoCopyrightSounds (NCS)
 
-Youtube:https://youtube.com/@nocopyrightsounds?si=q0rt2Z17NI-TsJ3J
+Youtube:https://youtube.com/@nocopyrightsounds
 Soundcloud:http://soundcloud.com/nocopyrightsounds
 Instagram:http://instagram.com/nocopyrightsounds_
 Facebook:http://facebook.com/NoCopyrightSounds
